@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @FlyGloFounder
 - 👀 I’m interested in startups
 - 🌱 I’m currently learning tech app building
-- 💞️ I’m looking to collaborate on beayty tech project
+- 💞️ I’m looking to collaborate on beauty tech project
 - 📫 How to reach me brilliantbeautycosmeticsinc@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I ❤️ Cats 😸
